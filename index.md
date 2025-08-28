@@ -18,5 +18,6 @@ Soon
 Soon
 
 ## Contact
-Email: alamri-95@windowslive.com
-whatsapp: +968 95521136,  https://wa.me/qr/NYKI4OFNDUH5F1
+Email: alamri-95@windowslive.com  
+WhatsApp: +968 95521136  
+[Chat on WhatsApp](https://wa.me/qr/NYKI4OFNDUH5F1)
